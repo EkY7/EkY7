@@ -1,0 +1,3 @@
+- 👋 Hi, I’m EkY
+- 👀 I’m Scripting...
+- 🌱 Discord: EkY#9269
